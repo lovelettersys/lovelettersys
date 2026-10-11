@@ -8,6 +8,8 @@
 
 「 <img src= "https://64.media.tumblr.com/f7fe74e16b8e8c59e6c6acd17d9ca5a0/dac96afc2c690a73-5e/s75x75_c1/a7a9f83f0154d165af05d19c83f19b7fae5813e8.gif"> 」⸝⸝➜﹒https://honipup.straw.page/
 
+<a href= "https://open.spotify.com/track/4oCeMWwBmMmfAjGwSvrTa4?si=82ljMOK_QYO9RQnOEXFjOA&utm_source=copy-link"> autistic + ocd + chronically ill </a> 
+
 ╭┈⋆ ˚  　current host﹕　honi   .   ˚
 
 ╰┈⋆ 𓈒  　prns﹕　he ノ they  ༄   .   ˚
