@@ -6,7 +6,7 @@
 
 <img src= "https://64.media.tumblr.com/90ddd825ca3726c0fd120410ece8d586/b12b6cec339f1f5e-13/s75x75_c1/9d514fc4c0a4a79a3292fcffd3b4033bcef7d9b8.gif"> 𓈒　°　⸝⸝　# **loveletter**　𓈒  . ꒰ 💌 ꒱
 
-「 <img src= "https://64.media.tumblr.com/f7fe74e16b8e8c59e6c6acd17d9ca5a0/dac96afc2c690a73-5e/s75x75_c1/a7a9f83f0154d165af05d19c83f19b7fae5813e8.gif"> 」⸝⸝➜﹒https://honipup.straw.page/
+「 <img src= "https://64.media.tumblr.com/f7fe74e16b8e8c59e6c6acd17d9ca5a0/dac96afc2c690a73-5e/s75x75_c1/a7a9f83f0154d165af05d19c83f19b7fae5813e8.gif"> 」⸝⸝➜﹒https://lovelettersys.straw.page/
 
 <a href= "https://open.spotify.com/track/4oCeMWwBmMmfAjGwSvrTa4?si=82ljMOK_QYO9RQnOEXFjOA&utm_source=copy-link"> autistic + ocd + chronically ill </a> 
 
